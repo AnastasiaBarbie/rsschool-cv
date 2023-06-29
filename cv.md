@@ -1,5 +1,5 @@
 # CV
-<img src="https://drive.google.com/uc?export=view&id=1bW-SFcfwxH4tMuCLfD4KG1Dz3eyU1u-7" width="200"></zero-md>
+![Foto](https://drive.google.com/uc?export=view&id=1a2bPH73BNizNzvky0GOMCdWGXsgVZSNa)
 ## About me:
 * Name: **Анастасия Барбие**
 * Contact Details:  
